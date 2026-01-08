@@ -35,7 +35,7 @@ Atualmente desenvolvendo projetos práticos que envolvem:
 
 ### 📫 Como me encontrar
 - **LinkedIn:** 
-- **E-mail:** [seu-email@exemplo.com]
+- **E-mail:** davilopes2102@gmail.com
 
 ---
 <p align="center">
